@@ -1,1 +1,0 @@
-# Trendytech-Azure-Project-
